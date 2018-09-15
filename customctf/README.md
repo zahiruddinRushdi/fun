@@ -1,1 +1,1 @@
-## Ini hanya sekadar seronok saja
+## Ini hanya sekadar untuk seronok sahaja
